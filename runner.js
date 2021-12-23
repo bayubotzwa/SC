@@ -4,10 +4,10 @@
 //Kalo Mau Yg No Enc Beli Aja
 
 //Jangan Lupa Follow Sosial MediaKu
-//Instagram : @Zero_YT7
-//Youtube : ZeroYT7
-//Tiktok : @_zeroyt7
-//Github : Zero-YT7
+//Instagram : @bayuganz_665
+//Youtube : Bayu Ganz
+//Tiktok : @bayuganz_65
+//Github : Bayuganzz
 
 //Thanks Udah Mau Pake Sc Ku
 //Creator Sc Ori : Zero YT7
